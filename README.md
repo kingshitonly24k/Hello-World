@@ -1,2 +1,5 @@
 # Hello-World
-just another repo.
+
+Hi katana brothers.
+
+im just a guy who likes cyber security, without the experience gawahaha! 
